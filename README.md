@@ -1,4 +1,4 @@
-# Si-Shot
+# Shahname OWG
 
 ### Introductions/ Description
 Third Person Shooter Game with C++
