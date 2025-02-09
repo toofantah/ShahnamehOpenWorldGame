@@ -39,5 +39,5 @@ https://user-images.githubusercontent.com/50558401/220418567-8696bf02-2c86-4f98-
 
 ### For more inquiries and/or contacts  🔽: 
  - ***Personal e-mail: toofan.tah@gmail.com***
- - ***Phone number (also WhatsApp available): +90 544 544 58 74***
+ - 
  - ***My personal / portfolio Website(Game page?): http://www.toofantahmoures.com***
